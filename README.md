@@ -1,0 +1,1 @@
+# yamaguchishinta.github.io
